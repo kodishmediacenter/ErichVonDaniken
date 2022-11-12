@@ -21,3 +21,5 @@ escreveu todos os textos para ele. (Hoje: Jungfrau-Park). Em junho de 2018, EvD 
 "Ao longo de toda a história da Terra e da vida até o tempo dos registros históricos, os traços de inteligência extraterrestre em nosso planeta são claros. detectar os verdadeiros panos de fundo de inúmeros quebra-cabeças históricos e reconsiderar o início da história da humanidade." (Dr. Johannes Fiebag, Geólogo, Bad Neustadt, Alemanha) .” (Prof. Dr. Dileep Kumar Kanjilal, Professor de Sânscrito e Indologia no Sancrit College, Calcutá, Índia)
 
 # Erich von Däniken recebe até 400 e-mails por dia – além de faxes e cartas – por causa dessa quantidade, ele não pode responder pessoalmente a todos os escritos e perguntas. Agradecemos a sua compreensão.
+
+<img src="https://www.daniken.com/en/biographie/evd_biographie_en_htm_files/5759.jpg">
