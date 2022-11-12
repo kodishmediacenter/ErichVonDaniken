@@ -22,4 +22,5 @@ escreveu todos os textos para ele. (Hoje: Jungfrau-Park). Em junho de 2018, EvD 
 
 # Erich von Däniken recebe até 400 e-mails por dia – além de faxes e cartas – por causa dessa quantidade, ele não pode responder pessoalmente a todos os escritos e perguntas. Agradecemos a sua compreensão.
 
-<img src="https://www.daniken.com/en/biographie/evd_biographie_en_htm_files/5759.jpg">
+<center><img src="https://www.daniken.com/en/biographie/evd_biographie_en_htm_files/5759.jpg"><center>
+ <center>Erick Von Deniken em Puma Punku</center>   
